@@ -38,8 +38,7 @@ _**Please give me proper credit when you use it, especially if you want to edit 
 
 ---
 
-## Contact
-Discord: `YUVRAJ#5666`, `Classikan#1567`
+
 
 If you have any problem, feel free to contact us. 😉
 
